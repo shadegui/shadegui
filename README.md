@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: add me on discord
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have been working with roblox development since 2021.
---> I have created my very own portfolio website for UI/Ux, check it out! https://shadowgolden00.wixsite.com/shade
+--> Visit my website! https://shadowgolden00.wixsite.com/shade
